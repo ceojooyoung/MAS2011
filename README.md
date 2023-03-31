@@ -1,1 +1,1 @@
-# Visual_Media_Programming-2022-
+# Visual_Media_Programming_in_2022_Winter_semester
